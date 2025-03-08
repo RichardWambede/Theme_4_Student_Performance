@@ -1,0 +1,1 @@
+looks at Student performance in higher education as a critical indicator for both institutional effectiveness and individual student success. Understanding the factors influencing academic outcomes allows institutions to implement targeted interventions, enhance curricula, and improve overall educational quality.
